@@ -1,1 +1,0 @@
-# 22110021_HanMinhDinh_InforSercu_Lab1
